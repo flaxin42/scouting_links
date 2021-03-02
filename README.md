@@ -25,4 +25,7 @@ A collection of links and other online resources for Scouts and Scout leaders.
 * [NC Scout Patch Collectors](https://www.facebook.com/groups/294367240648482/)
 * [SR-6 Scout Collectors](https://www.facebook.com/groups/338685879884512/)
 * [SR-9 Scout Collectors](https://www.facebook.com/groups/2829486113819667/)
-* Add your group here!
+* [Massachusetts Boy Scout Memorabilia Collectors] (https://www.facebook.com/groups/CMBSMC)
+* [New Hampshire Boy Scout Memorabilia Collectors] (https://www.facebook.com/groups/1640541532847872)
+* [Vermont Boy Scout Memorabilia Collectors] (https://www.facebook.com/groups/687936814651763)
+* 
